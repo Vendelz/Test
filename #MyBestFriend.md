@@ -1,0 +1,2 @@
+#mybestfriend
+ไอ้เหี้ยไก่
